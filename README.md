@@ -405,3 +405,4 @@ Would you like this in:
 * 🧾 Shopping list for all items mentioned?
 
 Let me know — happy to send them over.
+https://docs.google.com/document/d/1VC4qoyNYlsbezoU2wzGK9xwWSwXlJHOK/edit?usp=sharing&ouid=116657254368392289347&rtpof=true&sd=true
