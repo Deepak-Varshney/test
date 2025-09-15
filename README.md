@@ -1,3 +1,8 @@
+fkjeannet
+654321
+Jeannette Jaworski (Joe Smith's mom)
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/e44b1153-4544-4ed6-8290-2e101d913f88" />
+
 Thank you! You’ve given me a crystal-clear picture. You're already **serious and committed** — now you just need a **system that makes room for everything without burnout**.
 
 ---
