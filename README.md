@@ -13,6 +13,7 @@ Vbtaylor212=pass
 Vbtaylor212
 24 gc can be withdraw directly
 
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/43b4f77d-dca8-4e55-a644-a7335a86aa57" />
 
 jwnicholasr = 48 gc 654321
 Big Will (Nicholas Power)
